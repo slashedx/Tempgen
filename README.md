@@ -1,8 +1,19 @@
-- 👋 Hi, I’m @slashedx
-- 🌱 I’m currently learning JS
-- 📫 How to reach me: oldaos#0000 (discord)
+This discord bot was created by a user on discord that goes by Tempy
+If you skid, credit tempy and Hunter :trollface:
 
-<!---
-slashedx/slashedx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+i recommend running this in vscode or just running main.py in your folder
+
+ 
+ 
+ DONT DM FOR SUPPORT I WILL IGNORE YOU 
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
+ DONT DM FOR SUPPORT I WILL IGNORE YOU
