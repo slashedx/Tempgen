@@ -2,20 +2,23 @@
 
 
 Aint he 11?
+
 He is, he confessed.
-Rip lmao
 bro is way too young to use discord
-frfr
 get off 💀
 tempyyyyy
 tempyyyyyyyyyyyyyyyyyyyyyyyyyyy
-whens ur bday tempyyy 12 soon?
+whens ur bday tempyyy, 12 soon?
+
+# Support :trollface:
 
 ask him for support with his bot lmao # itztempy#0000
 
 this thing is cool n all but v2 when 🦬
 
-for tempy: still waiting for v2, all of us are.
+# for tempy: 
+
+still waiting for v2, all of us are.
 
 # REQS
 
