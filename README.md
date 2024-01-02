@@ -18,7 +18,7 @@ this thing is cool n all but v2 when 🦬
 
 # for tempy: 
 
-hunter was angy xd
+aos was angy xd
 , still waiting for v2, all of us are.
 
 # REQS
